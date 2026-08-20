@@ -18,3 +18,7 @@ Sou proativo, organizado e dedicado, tenho facilidade para aprender
 e grande interesse em adquirir novos conhecimentos. Meu objetivo é
 crescer profissionalmente, colocar meus conhecimentos em prática e
 contribuir com a equipe.
+
+Contatos:
+E-Mail: cauaa6947@gmail.com
+Linkedin: www.linkedin.com/in/cauã-andrade-54b35334b
